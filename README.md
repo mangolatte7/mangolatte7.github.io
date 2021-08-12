@@ -1,0 +1,1 @@
+# mangolatte7.github.io
